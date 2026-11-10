@@ -2,6 +2,10 @@
 
 Evidence that the full pipeline runs end to end on real data. Screenshots are of `outputs/report.html`, which the pipeline generates (open it in a browser for the live version).
 
+## Video
+
+[▶ Watch the demo video (57 s)](demo/demo-video.mp4): the pipeline runs in the terminal, then the generated report opens in a browser (shortlist, personalized emails and DMs), with spot checks against the creators' real YouTube channels.
+
 ## Screenshots
 
 | | |

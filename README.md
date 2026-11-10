@@ -12,7 +12,7 @@ Every number in the output comes from the YouTube Data API. Emails are only ever
 |---|---|
 | GitHub repository / project files | This repo: source in [`src/`](src/), CLI in [`run_pipeline.py`](run_pipeline.py), config in [`config.yaml`](config.yaml) |
 | README / documentation | This file |
-| Working demo / screenshots | [`docs/DEMO.md`](docs/DEMO.md): screenshots, real run log, re-run proof. Live report: [`outputs/report.html`](outputs/report.html) |
+| Working demo / screenshots / video | **Video:** [`docs/demo/demo-video.mp4`](docs/demo/demo-video.mp4) (1 min: pipeline run → report → creator profiles). [`docs/DEMO.md`](docs/DEMO.md): screenshots, real run log, re-run proof. Live report: [`outputs/report.html`](outputs/report.html) |
 | Influencer dataset (50+) | [`outputs/influencers_dataset.csv`](outputs/influencers_dataset.csv): 155 channels with PASS/FAIL reasons. [`outputs/shortlist.csv`](outputs/shortlist.csv): the 25 that passed |
 | Sample personalized messages | [`docs/SAMPLE_MESSAGES.md`](docs/SAMPLE_MESSAGES.md) (all 25) and [`outputs/personalized_messages.csv`](outputs/personalized_messages.csv) |
 | Outreach tracker | [`outputs/outreach_tracker.csv`](outputs/outreach_tracker.csv), log in [`outputs/outreach_log.csv`](outputs/outreach_log.csv), sample email in [`docs/sample_sent_email.eml`](docs/sample_sent_email.eml) |
