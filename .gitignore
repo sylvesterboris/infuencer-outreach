@@ -1,0 +1,9 @@
+.env
+__pycache__/
+*.pyc
+.pytest_cache/
+.venv/
+venv/
+outputs/pipeline.db
+outputs/pipeline.log
+outputs/outbox/
