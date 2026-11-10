@@ -13,15 +13,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** Apple device reviews, iPad usage guides, iPhone long-term tests, MacBook purchase advice, Gaming on mobile
 - **Email:** techdad650@gmail.com  ·  **Collaboration angle:** Paid product placement (review-style channel)
 
-**Email subject:** Placing EDXSO in your next Apple review
+**Email subject:** EDXSO partnership for Tech Dad
 
-> Hi Tech Dad, your recent hands-on with the M6 Mac Mini really stood out for its practical, base-user focus. Since your audience relies on practical Apple advice for work and home, we think a paid walkthrough of our AI learning tools would fit naturally into an upcoming video. Would you be open to a quick call to discuss how we could integrate this without disrupting your usual review style?
+> Tech Dad, your recent M6 Mac Mini review highlighted its utility for base users. Since your audience values practical Apple advice, we think a hands-on segment of EDXSO's AI learning tools fits well. We are an EdTech startup helping K-12 schools in India with accessible tech. I’d love to discuss a paid placement in an upcoming video. Do you have time for a quick call next week to see if this makes sense for you?
 
-*69 words*
+*75 words*
 
-**Instagram DM:** Hey Tech Dad, loved your M6 Mac Mini breakdown. Would you be open to a quick chat about featuring our AI tools in a future video?
+**Instagram DM:** Hi Tech Dad, loved your M6 Mac Mini review. We're an EdTech brand looking to collaborate on a hands-on segment. Open to a quick chat?
 
-*26 words*
+*25 words*
 
 ## 2. Johnny
 
@@ -30,15 +30,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** iPhone durability tests, Smartphone reviews, Tech giveaways, Phone tips and tricks
 - **Email:** Not Found  ·  **Collaboration angle:** UGC content creation (100% of recent uploads are Shorts)
 
-**Email subject:** Collab idea for Johnny's tech channel
+**Email subject:** EDXSO x Johnny: Short-form AI tools
 
-> Hey Johnny, loved your recent durability test on the Xiaomi 15 Pro. Your high-energy approach makes complex tech feel accessible. Since your audience loves practical gadget reviews, we think a quick UGC spot showing real use of our AI learning tools would fit well. We’re offering early access to the platform for this. Would you be open to a quick chat about this?
+> Hey Johnny, your recent durability test on the Xiaomi 15 Pro really stood out. Since your audience loves practical tech demos, we think short-form videos showing real use of our AI learning tools would fit well. We are an EdTech startup building these for schools, offering early access plus a paid partnership. Would you be open to a quick call to see if this makes sense for your channel?
 
-*63 words*
+*69 words*
 
-**Instagram DM:** Hey Johnny! Your Xiaomi durability test was intense. We’re making AI tools for schools and think a quick use-case video would fit your style. Open to chatting?
+**Instagram DM:** Hey Johnny! Loved your Xiaomi durability test. We have a quick UGC collab for your tech fans—open to a chat?
 
-*27 words*
+*21 words*
 
 ## 3. Sam Hlabangana
 
@@ -47,15 +47,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** iPhone Duo apps, Apple product reviews, Tech accessories, Gadget unboxing
 - **Email:** Not Found  ·  **Collaboration angle:** UGC content creation (100% of recent uploads are Shorts)
 
-**Email subject:** Collab idea for your iPhone Duo reviews
+**Email subject:** EDXSO AI tools for your iPhone Duo audience
 
-> Sam Hlabangana, your recent video on iPhone Duo apps really stood out. Since your audience loves practical Apple tips, we think a short-form UGC collab showing real uses of our AI learning tools would fit well. We’re an EdTech startup offering early access to these tools. Would you be open to a quick chat to see if this makes sense for your channel?
+> Hi Sam Hlabangana, your recent iPhone Duo 7 Day review and AirPods case tip were really helpful. Since your audience loves practical Apple setups, we think our AI learning tools fit well as daily productivity extras. We want to create short UGC videos showing real use cases, which we'll also run as ads. Would you be open to a quick call this week to discuss early access details?
 
-*63 words*
+*68 words*
 
-**Instagram DM:** Sam Hlabangana, loved your iPhone Duo review! We're looking for creators for a quick UGC collab. Open to chatting?
+**Instagram DM:** Hey Sam Hlabangana, loved your iPhone Duo 7 Day review! We have some AI tools that might fit your setup. Open to a quick chat?
 
-*19 words*
+*25 words*
 
 ## 4. TECH B 1M
 
@@ -64,15 +64,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** budget smartphone reviews, 5G phone unboxing, camera performance tests, gaming performance checks
 - **Email:** najimulhossen.01@gmail.com  ·  **Collaboration angle:** UGC content creation (75% of recent uploads are Shorts)
 
-**Email subject:** EDXSO x TECH B 1M UGC
+**Email subject:** Collab idea for TECH B 1M's 5G reviews
 
-> Hi TECH B 1M, loved your recent Samsung Galaxy F70 5G camera test. Your casual Bengali reviews really help budget shoppers make confident choices. We think your audience would appreciate seeing how AI tools simplify learning, not just tech specs. We are offering early access to our K-12 AI tools and a paid partnership for short-form UGC videos. Would you be open to a quick chat this week to see if it’s a good fit?
+> TECH B 1M, your recent Samsung Galaxy F70 5G unboxing was super clear. Since your audience loves budget 5G value, we think a short UGC video showing our AI learning tools in real school use would fit well. We offer early access and a paid partnership. Would you be open to a quick 5-minute call this week to see if it makes sense for you?
 
-*75 words*
+*65 words*
 
-**Instagram DM:** Hey TECH B 1M, your F70 5G camera test was great! We’d love to partner with you on some short AI learning videos. Open to chatting?
+**Instagram DM:** TECH B 1M, loved your F70 camera test. We're making short AI learning videos and think your budget tech angle is perfect. Open to a quick chat?
 
-*26 words*
+*27 words*
 
 ## 5. DATARK
 
@@ -81,15 +81,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** Apple product news, MKBHD commentary, Tech industry gossip, Smartphone rumors, Gadget pricing analysis
 - **Email:** datarkmedia@gmail.com  ·  **Collaboration angle:** UGC content creation (100% of recent uploads are Shorts)
 
-**Email subject:** Quick video idea for DATARK
+**Email subject:** EDXSO x DATARK: Short-form tech collab
 
-> Hi DATARK team, your recent breakdown of the iPad Mini pricing trick was sharp. Since your audience loves quick tech insights, we’d like to offer early access to our AI learning tools. We’re looking for a few short-form clips showing real use cases, which we can also run as ads. It fits your fast-paced style without requiring deep tutorials. Let us know if you’re open to a quick chat this week to see if it makes sense.
+> Hey DATARK team, your recent video on the iPhone Duo cracking problem was spot on. We're EDXSO, an EdTech startup building AI learning tools for K-12 schools in India. We’d love to partner with you to create a few short-form videos showing quick, real uses of our tools. This fits your tech-savvy audience interested in practical gadget applications. We can offer early access and a paid partnership. Would you be open to a quick call this week?
 
 *77 words*
 
-**Instagram DM:** Hey DATARK, your tips on Apple pricing were spot on. We're an EdTech startup wanting to collab on a few quick videos. Open to a chat?
+**Instagram DM:** Hey DATARK, loved your iPhone Duo video. We’re building AI learning tools and think a short collab showing their real use would fit your audience. Open to chatting?
 
-*26 words*
+*28 words*
 
 ## 6. Christian Perez
 
@@ -98,15 +98,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** iPhone Duo reviews, Budget PC builds, Smartphone comparisons, Tech unboxings
 - **Email:** cap_labs@theblendedgroup.com  ·  **Collaboration angle:** UGC content creation (100% of recent uploads are Shorts)
 
-**Email subject:** Collab for Christian Perez
+**Email subject:** Tech review partnership for Christian Perez
 
-> Christian Perez, your recent video on fixing the iPhone Duo’s biggest problem caught our eye. Your energetic take on gadgets fits well with our audience. EDXSO creates AI learning tools for K-12 schools in India. We’d love for you to make a few short-form clips showing a real use of our tools, which we’d also run as ads. This suits your tech-savvy viewers. Are you open to a quick call to discuss?
+> Hey Christian Perez, your recent deep dive into the iPhone Duo’s improvements stood out. Since your audience loves practical tech breakdowns, we think they’d appreciate seeing how EDXSO’s AI learning tools actually work in real school settings. We’re looking for a creator to film short-form UGC clips demonstrating these tools, which we’ll also run as ads. This fits your casual, energetic style perfectly. Are you open to a quick chat about this?
 
 *72 words*
 
-**Instagram DM:** Christian Perez, loved your iPhone Duo review. We’re looking for creators to demo our AI ed-tech tools in short clips. Open to a quick chat?
+**Instagram DM:** Hey Christian Perez, loved your iPhone Duo review. We’re at EDXSO and want to send you our AI tools for a short video collab. Open to a quick chat?
 
-*25 words*
+*29 words*
 
 ## 7. Pixel Neon Lab
 
@@ -115,15 +115,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** aesthetic tech gadgets, smartphone accessories, minimalist desk setups, retro gaming devices, customizable hardware
 - **Email:** pixelneon@outlook.com  ·  **Collaboration angle:** UGC content creation (100% of recent uploads are Shorts)
 
-**Email subject:** Pixel Neon Lab: AI tools for tech creators
+**Email subject:** Collab idea for Pixel Neon Lab
 
-> Hi Pixel Neon Lab, loved your recent video on the magnetic snap PC. Your focus on customizable hardware fits perfectly with our K-12 AI learning tools. We are looking for creators to produce short-form UGC demonstrating real use cases, which we will also run as ads. This suits your audience of tech enthusiasts who value unique, functional gadgets. Would you be open to a quick call to discuss early access and partnership details?
+> Hi Pixel Neon Lab, your recent video on the magnetic tiny PC really stood out for its clean design. Since your audience loves sleek, functional tech, I think our AI learning tools would fit well. We’re looking to create short-form UGC content showing quick, real use cases that we can also run as ads. Would you be open to a quick chat about early access and partnership details?
 
-*73 words*
+*68 words*
 
-**Instagram DM:** Hey Pixel Neon Lab, love your minimalist gadget reviews. We'd love to share our new AI tools for a quick UGC collab. Open to chatting?
+**Instagram DM:** Hey Pixel Neon Lab, loved the magnetic PC video. Thinking our AI tools might fit your aesthetic. Open to a quick chat?
 
-*25 words*
+*22 words*
 
 ## 8. Tech Unbox
 
@@ -132,13 +132,13 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** smartphone unboxing, TWS earbuds review, budget tech picks, first impressions
 - **Email:** Not Found  ·  **Collaboration angle:** UGC content creation (100% of recent uploads are Shorts)
 
-**Email subject:** EDXSO x Tech Unbox: AI for Schools
+**Email subject:** Quick tech demo for Tech Unbox
 
-> Hi Tech Unbox, your Mivi One review really highlighted how specs matter for budget users. We’re building similar quick-win AI tools for Indian schools. Since your audience loves practical tech, we think short-form clips showing these tools in action would resonate well. We’re offering early access plus a paid partnership. Are you open to a quick chat this week to see if this fits your current schedule?
+> Hey Tech Unbox, loved the Mivi One 5G review—your quick, enthusiastic breakdown of the 120Hz display really stood out. I’m with EDXSO, an EdTech startup building AI tools for Indian schools. We’d love to send you early access to create short-form videos showing real use, which we’d also run as ads. Your audience loves practical tech, so this could be a great fit. Would you be open to a quick chat to see if it works?
 
-*67 words*
+*77 words*
 
-**Instagram DM:** Hey Tech Unbox, loved your Mivi One review! We’re building AI tools for schools and want to create quick demos with you. Open to a quick chat?
+**Instagram DM:** Hey Tech Unbox, loved the Mivi One 5G review! We're EDXSO and want to send you our AI tools for some quick video demos. Open to chatting?
 
 *27 words*
 
@@ -149,15 +149,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** iPhone Duo reviews, Honor Robot Phone, Premium smartphone critiques, Tech value analysis
 - **Email:** yashsethi26business@gmail.com  ·  **Collaboration angle:** UGC content creation (100% of recent uploads are Shorts)
 
-**Email subject:** Collab idea for Yash Sethi
+**Email subject:** EDXSO x Yash Sethi: Tech Review Collab
 
-> Yash Sethi, your recent iPhone Duo review really stood out. I love how you break down premium gadget value for Indian audiences. At EDXSO, we build AI learning tools for K-12 schools. We think a short-form UGC video showing a quick, real use of our tools would fit your style. It’s a natural way to show high-value tech in action. We can offer early access and a paid partnership. Would you be open to a quick chat this week?
+> Yash Sethi, your "4 Lakh waste hogaye" iPhone Duo review hit hard with its honest take on premium value. Since your audience loves dissecting gadget utility, we think a quick UGC video showing real use of our AI learning tools would fit well. It’s a practical tech demo, not just hype. We’re offering early access plus a paid partnership. Would you be open to a quick call this week to see if the format works for you?
 
-*79 words*
+*77 words*
 
-**Instagram DM:** Hey Yash Sethi, loved your iPhone Duo breakdown. Quick question: open to testing our new AI ed-tech tools for some short-form content?
+**Instagram DM:** Hey Yash Sethi, loved your iPhone Duo review. We’re an EdTech startup and think a short video on our AI tools would fit your style. Open to a quick chat?
 
-*22 words*
+*30 words*
 
 ## 10. Sanjeev Mobile Wala
 
@@ -166,15 +166,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** smartphone unboxing reviews, budget mobile comparisons, desi comedy skits, mobile shop scenarios, gift giveaway promotions
 - **Email:** Not Found  ·  **Collaboration angle:** UGC content creation (100% of recent uploads are Shorts)
 
-**Email subject:** EDXSO x Sanjeev Mobile Wala: AI Tools
+**Email subject:** EDXSO collab for Sanjeev Mobile Wala
 
-> Hi Sanjeev Mobile Wala, loved your recent 'Shop condition' skit and the Redmi 17 review. Your casual Hinglish style really connects with budget-conscious buyers. We are EDXSO, an EdTech startup building AI learning tools for Indian K-12 schools. We’d love to create short-form UGC videos showing real classroom use, which we can run as ads. It fits your audience’s interest in practical tech. Would you be open to a quick chat about this?
+> Hi Sanjeev Mobile Wala, your "Shop condition" skit and the Redmi 17 unboxing were really fun to watch. Your casual Hinglish style makes tech feel approachable for budget buyers. We'd love to create short-form UGC showing quick, real uses of our AI learning tools. It fits your audience's need for practical, relatable content. Could you share your rates or jump on a quick call this week?
 
-*73 words*
+*66 words*
 
-**Instagram DM:** Hey Sanjeev Mobile Wala, loved the Shop condition video. We're EDXSO, making AI tools for schools. Want to create some quick UGC reels for us?
+**Instagram DM:** Hey Sanjeev Mobile Wala, loved your Redmi 17 review! We're an EdTech startup and would love to collab on some quick UGC. Let me know if you're open to chat?
 
-*25 words*
+*30 words*
 
 ## 11. Gyan Tech
 
@@ -183,15 +183,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** Smartphone Reviews, Apple Unboxing, OS Updates, Budget Phones, Laptop Reviews
 - **Email:** Not Found  ·  **Collaboration angle:** UGC content creation (100% of recent uploads are Shorts)
 
-**Email subject:** EDXSO x Gyan Tech: Quick UGC Partnership
+**Email subject:** EDXSO UGC collab for Gyan Tech
 
-> Hi Gyan Tech, loved your recent MacBook Pro unboxing and the honest take on that ₹30,000 phone. Your enthusiastic style fits our audience perfectly. We’re an EdTech startup building AI tools for Indian K-12 schools. We’d like to collaborate on short-form videos showing real usage of our platform, which we’d also run as ads. Would you be open to a quick call to discuss early access and compensation?
+> Hi Gyan Tech, your recent M6 MacBook Pro unboxing and honest ₹30,000 phone review showed great practical clarity. We think your audience would appreciate seeing our AI learning tools in real, quick use. We’re looking for short-form UGC videos that can also run as ads. This fits your tech review style perfectly. Would you be open to a quick call to discuss the format?
 
-*69 words*
+*65 words*
 
-**Instagram DM:** Hey Gyan Tech, loved your recent MacBook review! We’re EdXSO, an EdTech startup. Want to chat about a quick UGC collab?
+**Instagram DM:** Hey Gyan Tech! Loved your recent MacBook review. We’d love to send you our AI tools for a quick UGC video. Open to chatting?
 
-*21 words*
+*24 words*
 
 ## 12. Techy Imran
 
@@ -200,13 +200,13 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** budget laptop deals, gaming monitor guides, intel ultra processors, smartphone comparisons, pc performance tips
 - **Email:** techyimran1@gmail.com  ·  **Collaboration angle:** UGC content creation (67% of recent uploads are Shorts)
 
-**Email subject:** Partnership for Techy Imran
+**Email subject:** EDXSO x Techy Imran: UGC partnership
 
-> Hi Techy Imran, your recent guide on 2K monitors under ₹10,000 was spot-on for budget-conscious buyers. Since your audience loves practical, affordable tech tips, we think short-form UGC showing real uses of our AI learning tools would fit well. We’re offering early access to these tools for K-12 schools, plus a paid or affiliate deal. Could you share if you’re open to a quick chat about this?
+> Hi Techy Imran, your recent 2K monitor guide and budget laptop breakdowns are super helpful for Indian students. We’re EDXSO, an EdTech startup building AI learning tools for K-12 schools. We’d love to collaborate on short-form UGC showing our tools in real use, which we’d also run as ads. This fits your audience’s need for practical, affordable tech solutions. Would you be open to a quick call to discuss the format?
 
-*68 words*
+*71 words*
 
-**Instagram DM:** Hey Techy Imran, loved your 2K monitor guide! We’d love to send you our AI learning tools for some quick UGC. Open to a quick chat?
+**Instagram DM:** Hey Techy Imran! Loved your recent monitor guide. We’re EDXSO (AI EdTech) and want to create short UGC videos with you. Open to a quick chat?
 
 *26 words*
 
@@ -217,15 +217,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** gaming laptop reviews, PC hardware unboxing, handheld gaming PCs, laptop comparisons
 - **Email:** crimsontech.pc@gmail.com  ·  **Collaboration angle:** Sponsorship (default for established micro channels)
 
-**Email subject:** Sponsorship for Crimson Tech hardware reviews
+**Email subject:** Sponsorship idea for Crimson Tech
 
-> Hi Crimson Tech, your recent MSI Raider 16 Max HX review was spot-on. We’re EDXSO, an EdTech startup building AI learning tools for K-12 schools in India. We’d like to sponsor a segment in an upcoming video to introduce our platform. Think it fits your tech-savvy audience exploring new hardware ecosystems? Let me know if you’re open to a quick chat.
+> Hi Crimson Tech, your recent MSI Raider 16 Max HX review was spot on. I’m reaching out because we’re launching an AI learning tool for K-12 schools, and our early access offer could fit a dedicated segment in your next hardware video. It’s a straightforward sponsorship that adds value to your tech audience. Would you be open to a quick call this week to discuss the details?
 
-*61 words*
+*67 words*
 
-**Instagram DM:** Hey Crimson Tech! Loved your Strix G16 breakdown. Quick question: are you open to a sponsored segment for our new AI learning tools?
+**Instagram DM:** Hi Crimson Tech, loved your recent laptop reviews. We’re offering early access to our new AI learning tools for a sponsored segment. Open to chat?
 
-*23 words*
+*25 words*
 
 ## 14. ABHISHEK K REVIEW
 
@@ -234,15 +234,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** budget laptop deals, Flipkart sale highlights, consumer electronics reviews, gaming laptop recommendations
 - **Email:** Not Found  ·  **Collaboration angle:** UGC content creation (64% of recent uploads are Shorts)
 
-**Email subject:** Quick use demo for ABHISHEK K REVIEW
+**Email subject:** EDXSO collab for ABHISHEK K REVIEW
 
-> Hi ABHISHEK K REVIEW, your recent Flipkart Big Billion Days sale breakdown was super helpful for budget buyers. I’m reaching out because our AI learning tools for K-12 schools fit that practical, value-focused angle well. We’d like to create short-form videos showing a quick, real use of the tools, which we would also run as ads. This suits your audience of students and deal hunters looking for efficient tech. Could we hop on a quick call this week to discuss details?
+> Hi ABHISHEK K REVIEW, your recent review of the Samsung Galaxy Book 4 really stood out for its practical take on budget laptops. Since your audience loves finding the best value, we think our AI learning tools would fit well with your gadget-focused content. We are looking for UGC creators to make short-form videos showing real use cases, which we will also run as ads. Would you be open to a quick call to discuss early access and partnership details?
 
-*81 words*
+*80 words*
 
-**Instagram DM:** Hey ABHISHEK K REVIEW, loved your recent laptop deals video. We're an EdTech startup and want to create short ads showcasing our AI tools. Open to a quick chat?
+**Instagram DM:** Hey ABHISHEK K REVIEW, loved your recent laptop reviews! We're an EdTech startup looking for creators to make short UGC videos for our AI tools. Open to a quick chat?
 
-*29 words*
+*30 words*
 
 ## 15. Jon Adams
 
@@ -251,15 +251,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** Apple product reviews, Portable tech gadgets, Smart wearable comparisons, Ecosystem setup guides
 - **Email:** Not Found  ·  **Collaboration angle:** Paid product placement (review-style channel)
 
-**Email subject:** EDXSO placement for your tech reviews
+**Email subject:** EDXSO tech segment for your channel
 
-> Hi Jon Adams , I loved your recent Aeroband PocketDrum 2 Ultra videos. Your concise, enthusiastic style makes complex gadgets feel accessible. EDXSO builds AI learning tools for K-12 schools. We’d like to offer a paid hands-on walkthrough segment in an upcoming video. Since your audience enjoys practical tech setups, showing how our tools integrate into daily workflows could be a great fit. Would you be open to a quick call to discuss?
+> Hi Jon Adams, I loved your recent 'Aeroband PocketDrum' reviews; the concise style really works. Since your audience loves portable tech, I’d like to discuss a paid hands-on walkthrough of EDXSO’s AI learning tools. It fits nicely with your ecosystem setup guides. Are you open to a quick call next week to see if this makes sense for your upcoming schedule?
 
-*72 words*
+*61 words*
 
-**Instagram DM:** Hi Jon Adams , loved the PocketDrum videos! We’re an EdTech startup looking to feature our AI tools in a future review. Open to a quick chat?
+**Instagram DM:** Hey Jon Adams, loved the new drum gadget videos! Would you be open to chatting about a paid tech segment for your channel?
 
-*26 words*
+*23 words*
 
 ## 16. PIXEL NEST
 
@@ -268,15 +268,21 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** smartphone unboxing, budget phone reviews, flagship tech news, Diwali sale deals, upcoming smartphone launches
 - **Email:** amiya.samanta2026@gmail.com  ·  **Collaboration angle:** UGC content creation (100% of recent uploads are Shorts)
 
-**Email subject:** EDXSO x PIXEL NEST: UGC for Indian Tech Audience
+**Email subject:** Partnership idea for PIXEL NEST
 
-> Hi PIXEL NEST, your recent Tecno Spark 50s review was spot on for budget buyers. We are EDXSO, an EdTech startup building AI tools for Indian schools. We’d like to create short-form UGC with you showing real use of our tools, which we can also run as ads. This fits your audience’s interest in practical, affordable tech. Interested in a quick call to discuss the format?
+> Hi PIXEL NEST team,
+> >
+> > Loved your quick review of the Tecno Spark 50s 5G. Your enthusiastic style makes complex tech feel accessible to budget-conscious buyers.
+> >
+> > We’re EDXSO, building AI learning tools for K-12 schools in India. We’d love to create short-form UGC content with you showing real use cases. This fits your audience’s interest in practical, honest tech demos.
+> >
+> > Would you be open to a quick call next week to discuss?
 
-*66 words*
+*71 words*
 
-**Instagram DM:** Hey PIXEL NEST, love the Tecno review! We’re an EdTech startup and would love to do some quick UGC content with you. Open to a quick chat?
+**Instagram DM:** Hey PIXEL NEST, loved the Tecno Spark 50s review! We’re EDXSO, making AI tools for Indian schools. Could we chat about a quick collab?
 
-*27 words*
+*24 words*
 
 ## 17. Mekel Kasanova
 
@@ -285,13 +291,13 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** gaming mouse reviews, mechanical keyboard comparisons, budget laptop guides, peripheral tech analysis
 - **Email:** mekel@mekelkasanova.com  ·  **Collaboration angle:** UGC content creation (92% of recent uploads are Shorts)
 
-**Email subject:** Collab idea for Mekel Kasanova
+**Email subject:** Quick idea for Mekel Kasanova's keyboard shorts
 
-> Hi Mekel Kasanova, your recent short on the Apex Pro TKL stood out for its clear focus. We’re EDXSO, an EdTech startup creating AI learning tools for schools. We’d love to create short-form UGC videos showing real use of our tools, which we’d also run as ads. This fits your audience of gamers and students looking for practical tech. Would you be open to a quick call to discuss the format and next steps?
+> Hey Mekel Kasanova, your recent breakdown of the Apex Pro TKL Gen 3 was spot on. Since your audience loves practical tech, we think a quick UGC video showing our AI learning tools in real use would fit well. We're offering early access plus a paid partnership to create these short-form clips for ad campaigns. Would you be open to a quick call to discuss the format?
 
-*74 words*
+*67 words*
 
-**Instagram DM:** Hey Mekel Kasanova, loved the Apex Pro review. We’re making AI study tools and think your audience would get value from a quick demo. Open to a chat?
+**Instagram DM:** Hey Mekel Kasanova, loved your Apex Pro TKL review. We're looking for creators to make short UGC videos for our AI learning tools. Interested in a quick chat?
 
 *28 words*
 
@@ -302,15 +308,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** gaming laptop reviews, budget tech buying guides, festive sale deals, home entertainment gear, PC hardware comparisons
 - **Email:** technical.wws@gmail.com  ·  **Collaboration angle:** Paid product placement (review-style channel)
 
-**Email subject:** Collab idea for Work with Style
+**Email subject:** Partnership idea for Work with Style
 
-> Work with Style, your recent Diwali gaming laptop deals video was super clear. I'm reaching out from EDXSO. We build AI tools for Indian K-12 schools. Since your audience values practical tech advice, a paid hands-on walkthrough of our platform in an upcoming video could be a great fit. It shows real utility beyond gadgets. Are you open to a quick call this week?
+> Hi Work with Style, loved your recent breakdown on Diwali gaming laptop deals. Your practical Hindi buying advice really resonates with our audience. We are EDXSO, an EdTech startup building AI tools for Indian K-12 schools. We would love to sponsor a hands-on segment showing these tools in action within one of your upcoming tech videos. It fits your focus on practical, affordable tech solutions. Could you share your media kit or availability for a quick chat?
 
-*64 words*
+*77 words*
 
-**Instagram DM:** Hey Work with Style, loved your Diwali laptop guide. We're launching AI tools for Indian schools. Want to chat about a quick paid segment?
+**Instagram DM:** Hey Work with Style, loved your Diwali laptop guide! We’re building AI learning tools for schools. Want to chat about a paid segment in your next video?
 
-*24 words*
+*27 words*
 
 ## 19. LSC- Laptop service
 
@@ -319,15 +325,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** Laptop repair tutorials, Budget PC builds, Tamil tech tips, Hardware troubleshooting, Gaming laptop comparisons
 - **Email:** collaborationlsclaptopservice@gmail.com  ·  **Collaboration angle:** UGC content creation (75% of recent uploads are Shorts)
 
-**Email subject:** EDXSO collab for LSC- Laptop service
+**Email subject:** Quick UGC collab for LSC- Laptop service
 
-> Hi LSC- Laptop service, your recent Diwali gaming laptop comparison was spot on for our audience. We’re an EdTech startup building AI tools for Indian schools. We’d love to create short-form UGC videos showing real use cases, which we can also run as ads. This fits your tech-savvy Tamil audience looking for practical solutions. Could you share your availability for a quick call to discuss rates?
+> Hey LSC- Laptop service, loved your recent breakdown on identifying Gen 3 vs Gen 4 RAM. Since your audience trusts your practical hardware tips, we think short-form UGC showing real uses of our AI learning tools would fit well. We are offering early access to these tools for K-12 schools, plus a paid partnership. Are you open to a quick chat about creating a few short videos for us?
 
-*66 words*
+*69 words*
 
-**Instagram DM:** Hey LSC- Laptop service, loved your recent Diwali laptop video. We’re an EdTech startup looking for creators for short UGC ads. Open to a quick chat?
+**Instagram DM:** Hey LSC- Laptop service, loved your Gen 3 vs Gen 4 video! We're looking for creators for short UGC clips about our AI learning tools. Open to a quick chat?
 
-*26 words*
+*30 words*
 
 ## 20. The AI Dude - Tamil
 
@@ -336,15 +342,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** AI agent tutorials, n8n automation workflows, No-code AI tools, AI monetization strategies, Claude AI usage
 - **Email:** Not Found  ·  **Collaboration angle:** Sponsorship (educational content matches an EdTech brand)
 
-**Email subject:** Sponsorship for your Tamil AI tutorials
+**Email subject:** EDXSO partnership for AI tutorials
 
-> Hi The AI Dude - Tamil, your recent video on building an AI online store for Diwali was really practical. We are EDXSO, an EdTech startup creating AI learning tools for K-12 schools in India. Your audience loves practical AI automation, which fits our mission perfectly. We would love to discuss a paid sponsorship for one of your upcoming tutorials. Do you have time for a quick chat this week?
+> Hey The AI Dude - Tamil, loved your recent video on building an AI online store for Diwali. Our audience of Tamil-speaking beginners interested in automation overlaps perfectly with yours. We are an EdTech startup building AI learning tools for K-12 schools in India. I would love to discuss a paid sponsored integration inside one of your upcoming tutorials to share early access to our platform. Do you have time for a quick call this week?
 
-*69 words*
+*75 words*
 
-**Instagram DM:** Hi The AI Dude - Tamil, loved your recent AI store video! We're EDXSO, making AI tools for Indian schools. Open to a quick chat about a potential collab?
+**Instagram DM:** Hey The AI Dude - Tamil, your Diwali AI store video was super helpful. Are you open to discussing a partnership for our AI learning tools?
 
-*28 words*
+*25 words*
 
 ## 21. Web Tech Knowledge
 
@@ -353,15 +359,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** AI website building, Free hosting setup, Laravel PHP development, AI coding tools, WordPress automation
 - **Email:** Not Found  ·  **Collaboration angle:** Sponsorship (educational content matches an EdTech brand)
 
-**Email subject:** Sponsorship for your AI web dev tutorials
+**Email subject:** Sponsorship for Web Tech Knowledge
 
-> Hi Web Tech Knowledge, your recent video on building WordPress sites with AI really stood out for its practical approach. Since your audience loves free, step-by-step dev tools, I think EDXSO’s AI learning platform could be a useful addition to your workflow. We’d like to discuss a paid sponsorship for an integration in one of your upcoming tutorials. Do you have time for a quick call next week to see if this fits your content?
+> Hi Web Tech Knowledge, your recent tutorial on building a WordPress site with AI was exactly what our team needed. We’re EDXSO, an EdTech startup creating AI learning tools for K-12 schools. Since your audience loves practical, free dev setups, we think a paid sponsored integration in one of your upcoming explainers would be a great fit. Could you let us know if you’re open to a quick 10-minute call to discuss details?
 
-*75 words*
+*73 words*
 
-**Instagram DM:** Hey Web Tech Knowledge, loved your AI WordPress build video! We’re looking to sponsor a tutorial with our AI tools. Open to chatting?
+**Instagram DM:** Hey Web Tech Knowledge, loved your WordPress AI tutorial. We’re EDXSO and would love to discuss a paid sponsorship for a future video. Open to a quick chat?
 
-*23 words*
+*28 words*
 
 ## 22. Nick Automates
 
@@ -370,15 +376,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** AI automation workflows, Free AI tools, Claude Code skills, AI agency building, Open source AI
 - **Email:** Not Found  ·  **Collaboration angle:** UGC content creation (100% of recent uploads are Shorts)
 
-**Email subject:** EDXSO partnership for Nick Automates
+**Email subject:** Partnership idea for Nick Automates
 
-> Hi Nick Automates, your recent video on replacing paid AI tools with open-source repos was super helpful. Since your audience loves practical, beginner-friendly automation, we think they’d appreciate our new AI learning tools for schools. We’re offering early access and a paid partnership to create short-form UGC content showing quick, real-world uses. Would you be open to a quick chat this week to see if there’s a fit?
+> Hi Nick Automates, I loved your recent video on replacing paid AI tools with free repos. Since your audience loves practical, cost-saving automation tips, a quick UGC collaboration with EDXSO could be a great fit. We’re an EdTech startup building AI learning tools for K-12 schools. We’d like to create a few short-form videos showing real use cases, which we’d also run as ads. Would you be open to a quick call to discuss the details?
 
-*68 words*
+*76 words*
 
-**Instagram DM:** Hey Nick Automates, loved your recent open-source AI video. Would you be up for chatting about a quick UGC collab with EDXSO?
+**Instagram DM:** Hey Nick Automates, loved the free AI tools video. We’re an EdTech startup looking for short-form UGC partners. Open to a quick chat?
 
-*22 words*
+*23 words*
 
 ## 23. CodeByGaurav
 
@@ -387,13 +393,13 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** HTML CSS JavaScript, Animated UI Components, Web Development Tutorials, Frontend Design Projects
 - **Email:** Not Found  ·  **Collaboration angle:** UGC content creation (83% of recent uploads are Shorts)
 
-**Email subject:** Quick UGC collab for CodeByGaurav
+**Email subject:** Collab for CodeByGaurav's UI tutorials
 
-> Hi CodeByGaurav, your recent CSS Electric Navbar Animation was crisp and very clear. We're EDXSO, an EdTech startup building AI tools for Indian schools. Since you make concise visual coding tutorials for beginners, we think short-form videos showing a quick, real use of our tools would fit your audience well. We're looking for a few of these clips to run as ads too. Would you be open to a quick call to discuss the format and next steps?
+> Hi CodeByGaurav, your recent electric navbar and login form shorts are super clean. I'm with EDXSO, building AI learning tools for Indian schools. We'd love to partner on a few short-form videos showing a quick, real use of our tools. Since your audience loves concise frontend projects, this should fit well. We're offering early access and a paid partnership. Open to a quick call this week?
 
-*78 words*
+*66 words*
 
-**Instagram DM:** Hey CodeByGaurav, loved your recent navbar animation. We're looking for a quick UGC collab for our AI learning tools. Open to a chat?
+**Instagram DM:** Hey CodeByGaurav, loved the electric navbar short. We're EDXSO and have a quick UGC collab idea for your frontend audience. Open to chatting?
 
 *23 words*
 
@@ -404,15 +410,15 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** data engineering concepts, Databricks platform guides, Power BI DAX, Microsoft Fabric overview, beginner data tutorials
 - **Email:** Not Found  ·  **Collaboration angle:** Affiliate campaign (emerging channel; low-risk performance-based start)
 
-**Email subject:** Partnership for The Data Girl
+**Email subject:** Partnership idea for The Data Girl
 
-> Hi The Data Girl, I really enjoyed your recent video breaking down Databricks for beginners. Your clear approach to complex data engineering concepts is exactly what our audience needs. We are EDXSO, building AI learning tools. I’d like to propose an affiliate partnership with a tracked referral link and free premium access for you. This fits well with your viewer base interested in modern tech stacks. Would you be open to a quick call this week to discuss the details?
+> Hi The Data Girl, loved your recent Databricks explainer. Your clear breakdown of modern data platforms really helps beginners. Since you focus on accessible tech education, I think an affiliate partnership with EDXSO fits well. We offer a tracked referral link and free premium access to our AI learning tools for you. Would you be open to a quick chat to see if this makes sense?
 
-*80 words*
+*66 words*
 
-**Instagram DM:** Hey The Data Girl, loved your Databricks tutorial! We're EDXSO and would love to chat about an affiliate partnership. Let me know if you're free for a quick call?
+**Instagram DM:** Hey The Data Girl, your Databricks video was super clear. Would you be open to a quick chat about a potential affiliate collab with EDXSO?
 
-*29 words*
+*25 words*
 
 ## 25. Engineeringwithpalden
 
@@ -421,12 +427,12 @@ Signals used for each creator are listed above its messages, so you can see what
 - **Themes:** electronics projects, ML applications, engineering education, AI tools, FPGA hardware
 - **Email:** Not Found  ·  **Collaboration angle:** UGC content creation (100% of recent uploads are Shorts)
 
-**Email subject:** Collab for your FPGA and AI content
+**Email subject:** Question about your FPGA and AI content
 
-> Hi Engineeringwithpalden, your recent video on building a cyber deck with ChatGPT stood out to us. We’re EDXSO, creating AI learning tools for schools, and think our platform fits perfectly with your electronics and ML tutorials. I’d love to offer you early access and discuss creating a few short-form videos showing real use cases. This format works well as ads too. Do you have time for a quick call next week?
+> Hi Engineeringwithpalden, your recent video on using Muse for research stood out to us. We’re building AI learning tools for schools in India and think your audience of engineering students would appreciate a quick, real-world demo. We have an early access partnership available for a few short-form videos showing practical use cases, which we would also run as ads. Would you be open to a quick call to discuss if this fits your current projects?
 
-*71 words*
+*75 words*
 
-**Instagram DM:** Hey Engineeringwithpalden, loved your cyber deck build. We’re EDXSO, making AI tools for schools. Want to chat about a quick paid collab?
+**Instagram DM:** Hey Engineeringwithpalden, loved your recent Muse video. We're building AI tools for schools and think a quick demo collab could work well with your audience. Open to chatting?
 
-*22 words*
+*28 words*
